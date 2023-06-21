@@ -1,3 +1,3 @@
 # Oringo-Client #
-Download before it will be deleted by owner
 This mod also good on dojo and More...
+Many function on original discord oringo but in here is premium version
