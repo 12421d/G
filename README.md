@@ -1,3 +1,3 @@
 # Oringo-Client #
 This mod also good on dojo and More...
-Many function on original discord oringo but in here is premium version
+Many function on original discord oringo but in here is premium version And Free
